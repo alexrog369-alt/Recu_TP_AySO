@@ -1,1 +1,1 @@
-# Recu_TP_AySO
+Nombre y Apellido: Alexander Romero | Comisión: 115 | Turno: Mañana
